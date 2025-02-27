@@ -1,4 +1,4 @@
-CLIKE HERE TO DOWNLOAD TABLEAU ANALYSIS  [Kenneth_Lamin_Project 7.pdf](https://github.com/user-attachments/files/19013842/Kenneth_Lamin_Project.7.pdf)
+CLIKE HERE TO DOWNLOAD THE ANALYSIS ON TABLEAU [Kenneth_Lamin_Project 7.pdf](https://github.com/user-attachments/files/19013842/Kenneth_Lamin_Project.7.pdf)
 
 # Financial Market Analysis and Investment Recommendations
 
